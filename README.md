@@ -27,6 +27,7 @@ Main page:
 ![image](https://github.com/user-attachments/assets/3f723b78-89ff-48d5-b78a-d36474c53db1)
 
 
+https://github.com/user-attachments/assets/d92b445c-54b2-4276-9189-08c915f42252
 
 
 All tabs/images shown in screenshots are hyperlinked and redirected to working sites of respected category/ecommerce website.
